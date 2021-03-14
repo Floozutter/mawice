@@ -1,2 +1,2 @@
 # mawice
-Mawicious, eviw code! >:3
+mawicious, eviw code! >:3c
